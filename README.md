@@ -1,5 +1,5 @@
 # 💫 About Me:
-WELCOME TO MY PAGE👋👋👋<br>😀 I'm Dai<br>🎗 EC-UIT<br>From 🇻🇳
+WELCOME TO MY PAGE👋👋👋<br>😀 I'm Dai Nguyen Duong<br>🎗 EC-18-UIT<br>From 🇻🇳
 
 
 # 💻 Tech Stack:
